@@ -1,13 +1,13 @@
 # Sunday Service 26th March 2023
 
-GLORIOUS (D)
-https://m.youtube.com/watch?v=St_cSVnV2WM
+It's All About You
+https://youtu.be/6QqBJu55oXM
 
-GREAT IN POWER (C)
-https://m.youtube.com/watch?v=fDU2ct_ykhA
+GLORIOUS
+https://youtu.be/zJvWjt1F950
 
-HALLELUJAH (G)
-https://m.youtube.com/watch?v=3h5A3vw39Z4&list=OLAK5uy_k_AMf-XEtjP3l9Cd23lHIMq_3sbFMV_GA&index=6
+EMMANUEL
+https://youtu.be/qnXDK8YWp_Y
 
-HOLY FOREVER (G)
-https://m.youtube.com/watch?v=EbMYye-2Yt8
+WORTHY IS THE LAMB
+https://youtu.be/zJoJF86n0D4
